@@ -1,0 +1,1 @@
+halfway between 'matte' and 'satin metallic'
